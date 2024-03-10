@@ -1,4 +1,4 @@
-I uploaded the new invoice file
+I uploaded the new invoice file   
 The first picture：Setup list and price of my new computer host (excluding GPU,Total ￥6661)  
 The second picture：My GPU purchase history and proof of payment  
 The third picture：Proof of final payment for my computer（￥5661）  
